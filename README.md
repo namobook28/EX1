@@ -1,2 +1,2 @@
-# EX1
+# EX1-Tippawan
 Kanokpol Chimong
